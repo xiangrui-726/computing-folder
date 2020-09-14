@@ -8,9 +8,12 @@
 
 **O**utgoing, optimistic and funny!
 
-**H**appy and hard-working, Ms Poh is always really happy to help us with anything!
+**H**istory master! Ms Poh is really enthusiastic to help us with anything!
 
 someone wrote this:（Can be written into a poem or song and elaborate on her characteristics）
 
-
-
+some points you may consider:
+every time filling up the white board
+not fierce, forgiving
+can think of knowledge beyond syllabus at the fingertips and share wif us
+provide adequate consultation slots to clear our doubts 
